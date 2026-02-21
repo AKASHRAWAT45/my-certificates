@@ -60,8 +60,8 @@ Competitive Programming
 
 **🏆 Recognition & Performance Awards**
 
-🎖 Recognition and Bonus Announcement for Outstanding Performance – 2023
+🎖 Recognition and Bonus Announcement for Outstanding Performance – 2023 [Removed Temporarily]
 
-🎖 Recognition and Bonus Announcement for Outstanding Performance – 2024
+🎖 Recognition and Bonus Announcement for Outstanding Performance – 2024  [Removed Temporarily]
 
 These recognitions were awarded for exceptional contribution, performance excellence, and impact within the organization.
